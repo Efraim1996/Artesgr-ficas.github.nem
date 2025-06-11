@@ -1,2 +1,0 @@
-# Artesgr-ficas.github.nem
-
